@@ -1,1 +1,1 @@
-# bengisudem.github.io
+https://readymag.com/bengisudem/personalpage/
